@@ -1,5 +1,4 @@
 # Selling-Mystel-gold
-Selling some extra gold
 
 Hi,
 I'm a player selling some extra gold on Mystel. I have 40 million to sell.
