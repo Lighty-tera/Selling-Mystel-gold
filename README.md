@@ -1,9 +1,9 @@
 # Selling-Mystel-gold
 
 Hi,
-I'm a player selling some extra gold on Mystel. I have 40 million to sell.
+I'm a player selling some extra gold on Mystel. I have 40 million to sell, any amount
 
-Price is 6 euros/8 USD per million. We can trade in ultra low amounts if you don't trust me. Any amount you want. Through PayPal only.
+Price is 6 euros/8 USD per million. We can trade in ultra low amounts if you don't trust me. Through PayPal only.
 
 Thank you!
 
